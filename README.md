@@ -1,6 +1,6 @@
 - ![](https://i.postimg.cc/KvCL5Mcy/IMG-6609.gif)
 - **ABOUT ME** ***!*** ‎ ‎ ‎ ☆
-- ⌑ ‎ ‎ ***HI, I’M*** **NIKOLAI** ***!*** ‎ ‎ ⋋ ‎ ‎ I’m a **14**y/o boy and I **LOVE DOOM!** ![](https://i.postimg.cc/Nj3ntf6w/IMG-9222.gif)
+- ⌑ ‎ ‎ ***HI, I’M*** **NIKOLAI/ERIK** ***!*** ‎ ‎ ⋋ ‎ ‎ I’m a **15**y/o boy and I **LOVE DOOM!** ![](https://i.postimg.cc/Nj3ntf6w/IMG-9222.gif)
 - ![](https://i.postimg.cc/52GPL0TH/IMG-9211.gif) ~~I’m an ISFP sx4~~ ‎ ‎ ٬٬ ‎ ‎ Some other stuff I like are fireworks, Reservoir Dogs, Terminator & more!
 - ![](https://i.postimg.cc/9f5dcqsB/IMG-3175.gif)
 
